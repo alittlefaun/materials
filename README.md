@@ -1,1 +1,21 @@
-# materials
+# Materials
+
+- Hatch Embroidery 3 - $1099
+- Brother Inno-vis NQ1700E Embroidery Machine - $2000 
+- Brother SE400 Sewing and Embroidery Machine - $400 
+- Faux fur (one color) - $25-$40 plus shipping (~$10-$15) 
+- Minky fabric (one color) - $12-$15 plus shipping (~$5) 
+- Mochi fabric (one color) - $12-$15 plus shipping (~$12)
+- Embroidery Thread - $40
+- Fabric Swatches - $40 
+- Stabilizer 2 rolls (top) - $30
+- Monthly subscription to improve my skills - $12
+- Needles - $9 
+- All purpose thread (1 spool) - $2-$4 
+- Stabilizer (bottom) - $9 
+- Fabric marker (1) - $4 
+- Sharpies (4) - $8 
+- Silky Poly-fil stuffing 12oz - $9 
+- Electricity/ Water/ Internet/Insurance 
+- Rent - average rent per month for my location is ~$1600
+- etc.
